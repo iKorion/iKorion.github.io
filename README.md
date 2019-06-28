@@ -1,1 +1,0 @@
-# ikor.github.io
